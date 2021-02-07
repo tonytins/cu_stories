@@ -1,3 +1,5 @@
+# Chapter 1
+
 Though the castle was highly secure, especially since demolishing the isolationist policy, there were still blindspots and underground passages that I had found during my childhood. It seemed like they were designed incase of an emergency but also made a perfect escape route out of this boring and rigid life.
 
 Needless to say, they looked worn down and didn’t inspire confidence when it came to it’s rigids. If anything were to happen down here, I had only my handbag to protect me and that had my phone. As I slowly ventured through the tunnels, I saw the exit. Freedom!
@@ -16,7 +18,7 @@ I stopped in my footsteps as the doors began to gradually close behind us. “Y-
 
 “So why speak up now?” I asked, raising an eyebrow.
 
-They pointed to the ticket’s destination. Furtropolis. I shrugged and wondered what the big deal was. The conductor argued that the place is still going through some growing pains. Again, I brushed it off. But they warned me that it wasn’t like previous places, which were built during the isolationist era, which were a lot more kinder to the prince.
+They pointed to the ticket’s destination. Furtropolis. I shrugged and wondered what the big deal was. The conductor argued that the place is still going through some growing pains. Again, I brushed it off. But they warned me that it wasn’t like previous cities or towns I had visited, which were built during the isolationist era, and would likely not be as kind to me, if they would even know who I was.
 
 “Fine!” I replied with a slightly raised voice, expressing annoyance. “I’ll buy an extra pair of underwear when I get to Grand Central. Now can you show me to my room?” The conductor sighed and guided me to my room.
 

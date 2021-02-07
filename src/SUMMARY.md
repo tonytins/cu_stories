@@ -1,4 +1,5 @@
 # Summary
 
 - [Introduction](./intro.md)
-- [Lorem ipsum](./chapter_1.md)
+- [Tales from Furtropolis](./furtropolistales/README.md)
+  - [Chapter 1](./furtropolistales/chap1.md)

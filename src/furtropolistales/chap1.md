@@ -16,10 +16,10 @@ I stopped in my footsteps as the doors began to gradually close behind us. “Y-
 
 “So why speak up now?” I asked, raising an eyebrow.
 
-They pointed to the ticket’s destination. Furtropolis. I shrugged and wondered what the big deal was. The conductor argued that the place is still going through some growing pains. Again, I brushed it off. But they warned me that it wasn’t like previous places, which were built during the isolationist era, and thus a lot more kinder to the prince.
+They pointed to the ticket’s destination. Furtropolis. I shrugged and wondered what the big deal was. The conductor argued that the place is still going through some growing pains. Again, I brushed it off. But they warned me that it wasn’t like previous places, which were built during the isolationist era, which were a lot more kinder to the prince.
 
 “Fine!” I replied with a slightly raised voice, expressing annoyance. “I’ll buy an extra pair of underwear when I get to Grand Central. Now can you show me to my room?” The conductor sighed and guided me to my room.
 
 As an overnight express train, it didn’t make any stops compared to others along the line and got into Furtropolis early the next morning. As I stepped off the train with my handbag and my way up to the concourse, I began to marvel at the craftsmanship of the station. The sun’s light beamed through the glass ceiling providing a nice sense of openness in an otherwise closed environment.
 
-I remembered what the conductor had said yesterday and looked down at my outfit. It was a dark blue tunic with short sleeves and gold stripes along the shoulders, waist and cuffs. I didn’t take any of my badges or medals with me. Just the silver necklace with the Catsinbrug crown hanging from it that my dad gave me. At the very least they would see me as a cosplayer. But maybe I should see what the locals here wear.
+I remembered what the conductor had said yesterday and looked down at my outfit. It was a dark blue tunic with short sleeves and gold stripes along the shoulders, waist and cuffs. I didn’t take any of my badges or medals with me. Just the silver necklace with the Catsinbrug crown hanging from it that my dad gave me. At the very least they would see me as a cosplay. But maybe I should see what the locals here wear.
